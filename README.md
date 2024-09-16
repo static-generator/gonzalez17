@@ -1,5 +1,5 @@
 # Gonzalez
-### *Loui*ziana Nicola C Dino
+### *Loui*ziana Nicola C Diño
 > Iriga City
 
 
